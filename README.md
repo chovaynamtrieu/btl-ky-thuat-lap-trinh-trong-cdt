@@ -4,4 +4,4 @@
 
 [Thuyết minh](https://drive.google.com/file/d/1I33SRHVL4DHS4g8L0h2vBWQm66Z86WCM/view?usp=sharing)
 
-[Video minh hoa](https://drive.google.com/file/d/1TdTJsvorI9CVYw5ZJyP5HQwvmpRvHhnF/preview)
+[Video minh họa](https://drive.google.com/file/d/1TdTJsvorI9CVYw5ZJyP5HQwvmpRvHhnF/preview)
